@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ejenavee
+- 👀 I’m interested in helping businesses streamline operations and increase productivity.
+- 🌱 I’m a Virtual Assistant.
+- 💞️ I’m looking to collaborating with you.
+- 📫 Contact me on ejenavivanessa@gmail.com
+- 😄 Pronouns: SHE/HER
+- ⚡ Fun fact:I'm a lifelong learner who believes that every task, is an opportunity to grow and improve!.
